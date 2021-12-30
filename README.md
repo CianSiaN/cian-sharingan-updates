@@ -1,1 +1,1 @@
-
+cian lang malakas noh
